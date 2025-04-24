@@ -6,5 +6,5 @@ Welcome to my GitHub corner! My name is Suvi.
   
 👉 I’ve pinned other favourites of mine on my front page, but feel free to have a look at my other repos as well!  
   
-🐶 The pup on my picture is my rescue dog Tessa. She's very affectionate!  
+❤️ The pup on my picture is my rescue dog Tessa.  
 🤝 Want to connect? Add me on [LinkedIn](https://fi.linkedin.com/in/suvi-varjoranta-suvi200)!
